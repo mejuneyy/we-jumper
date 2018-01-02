@@ -22,3 +22,4 @@
 
 
 亲测有效，已经刷了2300分
+![image](https://github.com/mejuneyy/we-jumper/blob/master/recoder.jpg?raw=true)
